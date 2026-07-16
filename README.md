@@ -1,2 +1,0 @@
-# trabalhos-pessoais
-trabalhos pessoais
